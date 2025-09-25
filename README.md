@@ -12,4 +12,3 @@ Bem-vindo(a) ao meu perfil GitHub! Aqui estão alguns destaques:
 
 🌐 Outras redes: 
 https://www.instagram.com/vsaddi_
-https://x.com/vsaddi_
